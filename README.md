@@ -1,0 +1,1 @@
+# Aliuanime : tutorial , first , install themer , 2nd go to theme list , and find it , if yiu founded my anime , press long in 3 seconds and slide up and install theme , after that , go to plugins and select themer and slidedown and you see my theme name and trun on and restart aliucord , (DON'T SAY TO EVERYONE ELSE OR ELSE SOMEONE BAN YOU FOR AGAINST TOS AT YOUR OWN RISK)
